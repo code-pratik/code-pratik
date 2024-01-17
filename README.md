@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **pratikprajapati320@gmail.com**
 
-- 📄 Know about my experiences ([https://drive.google.com/file/d/1LW_XVLjSf3hNG2zvxNxyzGaqfa_OdBGt/view?usp=drive_link])
+- 📄 Know about my experiences (https://drive.google.com/file/d/11zwU8dparg6vzlFKI4BZsNT1rkU25jBt/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
